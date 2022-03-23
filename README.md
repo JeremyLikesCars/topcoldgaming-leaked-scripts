@@ -4,3 +4,7 @@ Topcoldgaming has been known for stealing and reselling scripts that are either 
 Enjoy!
 
 (his obfuscator he used was able to be cracked with one line)
+
+# Follow up
+
+![lol](https://github.com/JeremyLikesCars/topcoldgaming-leaked-scripts/blob/main/images/asddadsdasd.png?raw=true)
