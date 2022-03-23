@@ -8,3 +8,5 @@ Enjoy!
 # Follow up
 
 ![lol](https://github.com/JeremyLikesCars/topcoldgaming-leaked-scripts/blob/main/images/asddadsdasd.png?raw=true)
+
+![lol](https://github.com/JeremyLikesCars/topcoldgaming-leaked-scripts/blob/main/images/ddawddawdawd.png?raw=true)
